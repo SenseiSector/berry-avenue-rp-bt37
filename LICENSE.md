@@ -1,4 +1,4 @@
-
+Experience berry avenue rp like never before with vip Script for berry avenue rp, the #1 Script. Includes auto-collect and anti-ban for unbeatable
 
 
 
